@@ -15,4 +15,4 @@ I am an 18-year-old **Computer Programming student at Cukurova University**. I a
 I believe that being honest, deeply respecting family and core values, and maintaining a disciplined work ethic are the true pillars of growth. I am focused on continuous learning, daily improvement, and building a versatile global mindset.
 
 ---
-*“The best way to predict the future is to create it.”*
+"There is an old saying: 'That which doesn't kill you makes you stronger.' I don't believe that. I think the things that try to kill you make you angry and sad. Strength comes from the good things: your family, your friends, the satisfaction of hard work. Those are the things that will keep you whole. Those are the things to hold onto when you are broken."
